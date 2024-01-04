@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @akyelufukhan
+- 👀 I’m student at Isik University.
+- 🌱 I’m currently learning Computer Science.
+- 📫 How to reach me ufukhanakyel@gmail.com
